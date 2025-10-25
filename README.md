@@ -1,4 +1,4 @@
-- MUAAAHAHAHAHAHAHA-HA-HA MEE EVIL!!!
+- UAAAGGGGHHHHH!!!! *echoes*
 
 <!---
 blockisaac/blockisaac is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
